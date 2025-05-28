@@ -1,1 +1,2 @@
-# git_test
+HELLO LORD GOD!
+Praise the name of God
